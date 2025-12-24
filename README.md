@@ -1,5 +1,6 @@
 
-termes et politiques d'utilisation
+
+Termes et politiques d'utilisation
 ================================
 
 Cette politique de confidentialité décrit nos politiques et procédures de la collecte, l'utilisation et la divulgation de vos informations lorsque vous utilisez le service et vous informe sur vos droits en matière de confidentialité et sur la manière dont la loi vous protège.
